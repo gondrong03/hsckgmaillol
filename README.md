@@ -1,2 +1,0 @@
-# hsckgmaillol
-Hack akun google
